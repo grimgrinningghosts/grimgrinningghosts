@@ -1,8 +1,8 @@
 <p align="center">
 <picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2NEnKx-ByVhODpAhID3MR_lLqdWfZaX31p7HAsw1KGsrqo5oUesHd-J0G20PKHYe5m7vgaIbJdFdV10smh65H7gnFOoeEEv8UM1tG6MsDbkP_xzrX-tyvg3j0RJ5Ywvcy3h-4lOI2eR1L/s1600/tumblr_no5ctxtOem1s0c4z4o2_500.gif">
-  <source media="(prefers-color-scheme: light)" srcset="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2NEnKx-ByVhODpAhID3MR_lLqdWfZaX31p7HAsw1KGsrqo5oUesHd-J0G20PKHYe5m7vgaIbJdFdV10smh65H7gnFOoeEEv8UM1tG6MsDbkP_xzrX-tyvg3j0RJ5Ywvcy3h-4lOI2eR1L/s1600/tumblr_no5ctxtOem1s0c4z4o2_500.gif">
-  <img alt="hatbox ghost from the haunted mansion" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2NEnKx-ByVhODpAhID3MR_lLqdWfZaX31p7HAsw1KGsrqo5oUesHd-J0G20PKHYe5m7vgaIbJdFdV10smh65H7gnFOoeEEv8UM1tG6MsDbkP_xzrX-tyvg3j0RJ5Ywvcy3h-4lOI2eR1L/s1600/tumblr_no5ctxtOem1s0c4z4o2_500.gif">
+  <source media="(prefers-color-scheme: dark)" srcset="https://s-media-cache-ak0.pinimg.com/originals/a2/2b/ab/a22bab589d088c663bc11eb53d991698.gif">
+  <source media="(prefers-color-scheme: light)" srcset="https://s-media-cache-ak0.pinimg.com/originals/a2/2b/ab/a22bab589d088c663bc11eb53d991698.gif">
+  <img alt="animated shot from the nightmare before christmas" src="https://s-media-cache-ak0.pinimg.com/originals/a2/2b/ab/a22bab589d088c663bc11eb53d991698.gif">
 </picture>
 <p align="center">
 GRIM GRINNING GHOSTS COME OUT TO SOCIALIZE!
