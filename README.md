@@ -21,7 +21,7 @@ GRIM GRINNING GHOSTS COME OUT TO SOCIALIZE!
      
 - im so scared of everyone im ngl (JOKE) ur going to have to approach me if you want a conversation. i dont mind cuddles or anything of the sort, just dont do it when im with friends. 
 
-- dni is the same as on my strawpage. i dont partake in discourse as i find arguing on a pixel horse game to be stupid. 
+- new year new me. no dni i will mute/block you if i find you weird <////3333
 
 - i usually kiss instead of crown, it doesn't mean i ship anything. if you whisper me crowns i probably wont reply but just know i appreciate it !
 <p align="center">
