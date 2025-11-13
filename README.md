@@ -1,33 +1,31 @@
 <p align="center">
 <picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://s-media-cache-ak0.pinimg.com/originals/a2/2b/ab/a22bab589d088c663bc11eb53d991698.gif">
-  <source media="(prefers-color-scheme: light)" srcset="https://s-media-cache-ak0.pinimg.com/originals/a2/2b/ab/a22bab589d088c663bc11eb53d991698.gif">
-  <img alt="animated shot from the nightmare before christmas" src="https://s-media-cache-ak0.pinimg.com/originals/a2/2b/ab/a22bab589d088c663bc11eb53d991698.gif">
+  <source media="(prefers-color-scheme: dark)" srcset="https://static.wikia.nocookie.net/regretevator/images/6/6f/Folly_Reveal_Scene_clip.gif/revision/latest?cb=20240831172009">
+  <source media="(prefers-color-scheme: light)" srcset="https://static.wikia.nocookie.net/regretevator/images/6/6f/Folly_Reveal_Scene_clip.gif/revision/latest?cb=20240831172009">
+  <img alt="animated shot from the nightmare before christmas" src="https://static.wikia.nocookie.net/regretevator/images/6/6f/Folly_Reveal_Scene_clip.gif/revision/latest?cb=20240831172009">
 </picture>
 <p align="center">
 GRIM GRINNING GHOSTS COME OUT TO SOCIALIZE!
 <p align="center">
-  🎃 SABLE/TESTAMENT | 22 | THEY/THEM | NONBINARY LESBIAN 🎃
+  👁️ HOLLY/SABLE | 22 | THEY/THEM | NONBINARY LESBIAN 🩸
 <p align="center">
 <picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://64.media.tumblr.com/de299c512cb8e9a92179ea563ea338ab/d13299b037760b37-f4/s400x600/59b98fecaddb6748b43e33a33faac80e7c810662.gifv">
- <source media="(prefers-color-scheme: light)" srcset="https://64.media.tumblr.com/de299c512cb8e9a92179ea563ea338ab/d13299b037760b37-f4/s400x600/59b98fecaddb6748b43e33a33faac80e7c810662.gifv">
- <img alt="divider" src="https://64.media.tumblr.com/de299c512cb8e9a92179ea563ea338ab/d13299b037760b37-f4/s400x600/59b98fecaddb6748b43e33a33faac80e7c810662.gifv">
+ <source media="(prefers-color-scheme: dark)" srcset="https://64.media.tumblr.com/3dcc6bdde5719f1c49f6bd0fc4edcb37/6ba6e4a3159042cd-66/s2048x3072/0062b12a16d565f48e02dcd2bf0ffb5134d5748c.pnj">
+ <source media="(prefers-color-scheme: light)" srcset="https://64.media.tumblr.com/3dcc6bdde5719f1c49f6bd0fc4edcb37/6ba6e4a3159042cd-66/s2048x3072/0062b12a16d565f48e02dcd2bf0ffb5134d5748c.pnj">
+ <img alt="divider" src="https://64.media.tumblr.com/3dcc6bdde5719f1c49f6bd0fc4edcb37/6ba6e4a3159042cd-66/s2048x3072/0062b12a16d565f48e02dcd2bf0ffb5134d5748c.pnj">
 </picture>
   
-  UPDATED PONYTOWN INFORMATION
-
-  - im mainly at 18+ docks, though i do sometimes flock to the campsite. i'm only on safe to spectate. i probably wont interact with you if youre under 18 besides general pony compliments.
-     
-- im so scared of everyone im ngl (JOKE) ur going to have to approach me if you want a conversation. i dont mind cuddles or anything of the sort, just dont do it when im with friends. 
-
-- new year new me. no dni i will mute/block you if i find you weird <////3333
-
-- i usually kiss instead of crown, it doesn't mean i ship anything. if you whisper me crowns i probably wont reply but just know i appreciate it !
+  
+  🖤 PONYTOWN INFO -
+  - mostly with friends. i frequent 18+ docks and the roblox/pokemon area. 
+  - im scared of everyone on this webbed site you will have to approach me first. please w2i, im mainly offtab or making ponies.
+  - um id perfer minors to not interact. besides that, no strict dni, i mute or block people i find weird.
+  - i usually dont respond to whispers that crown me. just know i appreciate it!
+ 
 <p align="center">
 <picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://64.media.tumblr.com/de299c512cb8e9a92179ea563ea338ab/d13299b037760b37-f4/s400x600/59b98fecaddb6748b43e33a33faac80e7c810662.gifv">
- <source media="(prefers-color-scheme: light)" srcset="https://64.media.tumblr.com/de299c512cb8e9a92179ea563ea338ab/d13299b037760b37-f4/s400x600/59b98fecaddb6748b43e33a33faac80e7c810662.gifv">
- <img alt="divider" src="https://64.media.tumblr.com/de299c512cb8e9a92179ea563ea338ab/d13299b037760b37-f4/s400x600/59b98fecaddb6748b43e33a33faac80e7c810662.gifv">
+ <source media="(prefers-color-scheme: dark)" srcset="https://64.media.tumblr.com/3dcc6bdde5719f1c49f6bd0fc4edcb37/6ba6e4a3159042cd-66/s2048x3072/0062b12a16d565f48e02dcd2bf0ffb5134d5748c.pnj">
+ <source media="(prefers-color-scheme: light)" srcset="https://64.media.tumblr.com/3dcc6bdde5719f1c49f6bd0fc4edcb37/6ba6e4a3159042cd-66/s2048x3072/0062b12a16d565f48e02dcd2bf0ffb5134d5748c.pnj">
+ <img alt="divider" src="https://64.media.tumblr.com/3dcc6bdde5719f1c49f6bd0fc4edcb37/6ba6e4a3159042cd-66/s2048x3072/0062b12a16d565f48e02dcd2bf0ffb5134d5748c.pnj">
 </picture>
 <p align="center">
