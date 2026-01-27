@@ -7,7 +7,7 @@
 <p align="center">
 GRIM GRINNING GHOSTS COME OUT TO SOCIALIZE!
 <p align="center">
-  👁️ HOLLY/SABLE | 22 | THEY/THEM | NONBINARY LESBIAN 🩸
+  👁️ HOLLY/SABLE | 23 | THEY/THEM | NONBINARY LESBIAN 🩸
 <p align="center">
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://64.media.tumblr.com/3dcc6bdde5719f1c49f6bd0fc4edcb37/6ba6e4a3159042cd-66/s2048x3072/0062b12a16d565f48e02dcd2bf0ffb5134d5748c.pnj">
