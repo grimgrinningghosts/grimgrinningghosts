@@ -17,9 +17,9 @@ GRIM GRINNING GHOSTS COME OUT TO SOCIALIZE!
   
   
   🥕 PONYTOWN INFO -
-  - mostly with friends. i frequent 18+ docks and the roblox/pokemon area. 
+  - mostly with friends. i frequent 18+ docks and the roblox/pokemon area. i usually go on safe to spectate. 
   - im scared of everyone on this webbed site you will have to approach me first. please w2i, im mainly offtab or making ponies.
-  - um id perfer minors to not interact. besides that, no strict dni, i mute or block people i find weird.
+  - idm minors interacting with me in game but i wont friend you. besides that, no strict dni, i mute or block people i find weird.
   - i usually dont respond to whispers that crown me. just know i appreciate it!
  
 <p align="center">
